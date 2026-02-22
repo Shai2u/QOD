@@ -16,7 +16,7 @@
 * ארז שריג ידבר על קובץ חיבורים לשכבות ומידע היסטורי
 * ראובן קוסט מעדליא יספר לנו על שיעור שהוא למד על מודלים
 
-[קישור לשידור החי ב-YouTube](https://youtube.com/live/3lEKLXJvq5k?feature=share)
+[קישור לשידור החי ב-YouTube](https://youtube.com/live/uv52_cdRFsY?feature=share)
 
 
 ## ינואר 2026
